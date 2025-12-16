@@ -20,5 +20,5 @@ Basic dni : proshippers , homophobics, racists , under 13 or over 19 if you unde
   Ships : im a muilt-shipper so its really doesnt matter unless its a adult x kid those r disguting and never mention them near me. I love any mha their all cute my most favorite is kiribaku KIRIBAKU SHIPPER SINCE 2020 !! i like dkbk and any other ship im not a fan favorite of hawks n dabi but its cute. Im ok with jjk ships like itafushi,itakugi,fushikugi any are fine but dont be delulu about itafushi over a simple intercation it makes no sense??. But im okay with any ships !!!
 
 <p align="center">
-<img width="540" height="507" alt="image" src="https://github.com/user-attachments/assets/6db2fa01-ad31-4481-add0-c477e10bc55f" />         <img width="540" height="571" alt="image" src="https://github.com/user-attachments/assets/64cdac01-779b-4793-93f5-ea98b5446931" />
+<img width="540" height="507" alt="image" src="https://github.com/user-attachments/assets/6db2fa01-ad31-4481-add0-c477e10bc55f" /> <img width="540" height="571" alt="image" src="https://github.com/user-attachments/assets/64cdac01-779b-4793-93f5-ea98b5446931" />
 
