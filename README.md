@@ -16,15 +16,17 @@ Straight .
 WHISPER ME IF WANT INT !!
 
 <p align="center">
-A litte info js so you know is i can be toxic at times and say mean things if it makes you uncomfortable lmk and ill stop also dont vent to me im not good in those situation and never will be so pls dont tell me about ur personal problems and if i say somthing you dont like a slur or sum lmk and i wont say it again near you. DONT ever involve me into drama js because of a friend and assume ill side with them i do not choose sides or anything like that. Im usually afk bc im mostly watchting yt or just playin games !! I KIN BAKUGO SM I LOVE HIM ALOTT AAAA!
+A litte info js so you know is i can be toxic at times and say mean things if it makes you uncomfortable lmk and ill stop also dont vent to me im not good in those situation and never will be so pls dont tell me about ur personal problems and if i say somthing you dont like a slur or sum lmk and i wont say it again near you. DONT ever involve me into drama js because of a friend and assume ill side with them i do not choose sides or anything like that. Im usually afk bc im mostly watchting yt or just playin games !! I KIN BAKUGO SM I LOVE HIM ALOTT AAAA! I grew up in like a bad enviorment so ill end up acting in a weird way yes ill say slur sometimes because of the actions and my school evnviorment.Dont expect me to try and change that fast when it takes time so yes im trying to stop using those words but dont rush or force me to stop saying them.
 
 
 <p align="center">
-Basic dni : proshippers , homophobics, racists , under 13 or over 19 if you under or over js dont be weird unless you let me know its a joke or somthin !! , weird shippers !, weird mha fans , dark ships, sexual humor like i under stand if its a joke but dont overuse it bc its super weird and gross. 
+Basic dni : proshippers , homophobics, racists , under 13 or over 19 if you under or over js dont be weird unless you let me know its a joke or somthin !! , weird shippers !, weird mha fans , dark ships, sexual humor like i under stand if its a joke but dont overuse it bc its super weird and gross. THOSE DISGUSTING JJK FANS THE WEIRD ONES yall weird oms </3
 
   <p align="center">
-  Ships : im a muilt-shipper so its really doesnt matter unless its a adult x kid those r disguting and never mention them near me. I love any mha their all cute my most favorite is kiribaku KIRIBAKU SHIPPER SINCE 2020 !! i like dkbk and any other ship im not a fan favorite of hawks n dabi but its cute. Im ok with jjk ships like itafushi,itakugi,fushikugi any are fine but dont be delulu about itafushi over a simple intercation it makes no sense??. But im okay with any ships !!!
+  Ships : im a muilt-shipper so its really doesnt matter unless its a adult x kid those r disguting and never mention them near me. I love any mha their all cute my most favorite is kiribaku KIRIBAKU SHIPPER SINCE 2020 !! i like dkbk and any other ship im not a fan favorite of hawks n dabi but its cute. Im ok with jjk ships like itafushi,itakugi,fushikugi any are fine but dont be delulu about itafushi over a simple intercation it makes no sense??. i also ship todomomo and bakuocha, izkuocha BECAUSE LIKE yuh i like those staright ships im not a hater YOULL NEVER CATCH ME HATING ON STARIGHT SHIPS. lets be real ichihime is the best bleach ship lets be real !
 
+  <p align="center">
+  Socials : insta: kv2pp  Discord: .sshot0  lmk when you add me on those so ik!
 <p align="center">
 <img width="540" height="571" alt="image" src="https://github.com/user-attachments/assets/e1451742-6d3b-4d7e-b98f-3981752eaefc" />
 
