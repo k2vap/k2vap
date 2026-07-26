@@ -5,5 +5,9 @@
 <p align="center">  
 CREDIT TO MOYA FOR MAKE IT OR ME
 
-reworking 
+<p align="center">
+  feel free to c+h and int i may not respond so whisper me also im not muted 😢
+
+  reworking 
+
 
