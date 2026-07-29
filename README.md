@@ -1,13 +1,10 @@
-
-  
 <p align="center">
-  <img <img width="588" height="735" alt="image" src="https://github.com/user-attachments/assets/70bb8495-9e45-44ef-9808-64b89d47471f" />
-<p align="center">  
-CREDIT TO MOYA FOR MAKE IT OR ME
-
+<img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/b068334d-e164-4f96-93af-c96bee73894f" />
 <p align="center">
-  feel free to c+h and int i may not respond so whisper me also im not muted 😢
-
-  reworking 
+<img width="775" height="740" alt="image" src="https://github.com/user-attachments/assets/3631a7e9-0bed-47b1-ba91-38c2db23b02a" />
+  <p align="center">
+    w.i.p for rn...
+<p align="center">
+<img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/7362672b-26a1-4b4a-a4a8-f0b029427c48" />
 
 
