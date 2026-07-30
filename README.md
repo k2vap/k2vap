@@ -7,7 +7,8 @@
   <p align="center">
     w.i.p for rn... SIGHHHH
  <p align="center">
-   <img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/75040dd6-b26c-4a7a-a84f-74b300b844ae" />
+<img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/3afb7467-1cc6-438e-8bce-dcb22dbdd0f3" />
+
 
 <p align="center">
 <img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/7362672b-26a1-4b4a-a4a8-f0b029427c48" />
