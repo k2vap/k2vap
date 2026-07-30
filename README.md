@@ -2,7 +2,8 @@
  <img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/b068334d-e164-4f96-93af-c96bee73894f" />
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=trulykogaz" alt="Profile Views" />
-</p><img src="https://komarev.com/ghpvc/?username=trulykogaz&color=000000 />
+</p>
+<img src="https://komarev.com/ghpvc/?username=trulykogaz&color=000000 />
 
 
 <p align="center">
