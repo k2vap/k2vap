@@ -7,8 +7,16 @@
 
 <p align="center">
  <img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/bb0f3ee6-98a1-4a2c-823a-92d629bb4696" />
+
  <p align="center">
-    w.i.p for rn... SIGHHHH
+     ..  ᴄᴀʟʟ ᴍᴇ ...   ʏᴀʀɪ  ᴏʀ  ʏᴀʀʙᴇᴀʀ
+ <p align="center">
+  15 ʏᴏ  ˚   ˚   sʜᴇ  /  ʜᴇʀ  ˙˙˙  
+ <p align="center">
+  ˋ  ˋ ᴋᴏɢᴀ  +  ʏᴏɪᴄʜɪ ᴋɪɴ   • 
+<p align="center">
+  ˚  ˙  ʙɪ  ˎ ˎ  ᴄ+ʜ  :ᴘ  ⊰ ᴅɴᴄ ᴏʀ ɪɴsᴘᴏ  !
+
  <p align="center">
 
 
