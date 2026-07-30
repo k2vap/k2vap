@@ -7,7 +7,6 @@
 
 <p align="center">
 <img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/0f4560b5-39f4-4fa0-8084-b613b18aee45" />
-
  <p align="center">
      ..  ᴄᴀʟʟ ᴍᴇ ...   ʏᴀʀɪ  ᴏʀ  ʏᴀʀʙᴇᴀʀ
  <p align="center">
@@ -18,7 +17,6 @@
   ˚  ˙   ᴄ+ʜ  :ᴘ  ⊰ ᴅɴᴄ ᴏʀ ɪɴsᴘᴏ  !
  <p align="center">
 ˙˙  ʚ ɪᴍ ᴄʜɪʟʟ ᴡɪᴛʜ ᴀɴʏ sʜɪᴘs ʏᴏ ᴀɴᴅ ᴇɴsᴛᴀʀs ғᴀɴs ɪɴᴛ ᴏᴋ ɪ ɴᴇᴇᴅ ᴛʜɪs ᴏᴋ? ᴘʟs ɪ ɴᴇᴇᴅ ᴇɴsᴛᴀʀs ғʀɪᴇɴᴅs. ^-^ ˙˙ ɞ 
-
 <p align="center">
 <img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/7362672b-26a1-4b4a-a4a8-f0b029427c48" />
 
