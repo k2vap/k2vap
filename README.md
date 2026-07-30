@@ -3,8 +3,6 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=trulykogaz" alt="Profile Views" />
 </p>
-<img src="https://komarev.com/ghpvc/?username=trulykogaz&color=000000 />
-
 
 <p align="center">
 <img width="775" height="740" alt="image" src="https://github.com/user-attachments/assets/3631a7e9-0bed-47b1-ba91-38c2db23b02a" />
