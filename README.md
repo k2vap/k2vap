@@ -4,10 +4,12 @@
 
 <p align="center">
 <img width="775" height="740" alt="image" src="https://github.com/user-attachments/assets/3631a7e9-0bed-47b1-ba91-38c2db23b02a" />
-  <p align="center">
+
+<p align="center">
+ <img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/bb0f3ee6-98a1-4a2c-823a-92d629bb4696" />
+ <p align="center">
     w.i.p for rn... SIGHHHH
  <p align="center">
-<img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/3afb7467-1cc6-438e-8bce-dcb22dbdd0f3" />
 
 
 <p align="center">
