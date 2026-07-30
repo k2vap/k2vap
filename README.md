@@ -1,7 +1,7 @@
 <p align="center">
  <img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/b068334d-e164-4f96-93af-c96bee73894f" />
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=trulykogaz" alt="Profile Views"&color=black />
+  <img src="https://komarev.com&color=000000&style=plastic&label=plastic/ghpvc/?username=trulykogaz" alt="Profile Views" />
 </p> 
 
 <p align="center">
