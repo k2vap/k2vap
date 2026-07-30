@@ -3,8 +3,9 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=trulykogaz" alt="Profile Views" />
 </p>
+
 <p align="center">
- <img src https://komarev.com/ghpvc/?username=trulykogaz&color=000000/> 
+  <img src="https://komarev.com/ghpvc/?username=trulykogaz&color=000000 />
 </p>
 
 <p align="center">
