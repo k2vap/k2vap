@@ -1,6 +1,6 @@
 <p align="center">
 <img width="864" height="297" alt="image" src="https://github.com/user-attachments/assets/b068334d-e164-4f96-93af-c96bee73894f" />
-![](https://hit.yhype.me/github/profile?account_id=173663786)
+
 <p align="center">
 <img width="775" height="740" alt="image" src="https://github.com/user-attachments/assets/3631a7e9-0bed-47b1-ba91-38c2db23b02a" />
   <p align="center">
