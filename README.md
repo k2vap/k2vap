@@ -8,7 +8,7 @@
 <p align="center">
 <img width="864" height="200" alt="image" src="https://github.com/user-attachments/assets/0f4560b5-39f4-4fa0-8084-b613b18aee45" />
  <p align="center">
-     ..  ᴄᴀʟʟ ᴍᴇ ...   ʏᴀʀɪ  ᴏʀ  ʏᴀʀʙᴇᴀʀ
+     ..ʏᴀʀɪ / ᴛʜᴇ ᴋɪɴɢ 
  <p align="center">
   15 ʏᴏ  ˚   ˚   sʜᴇ  /  ʜᴇʀ  ˙˙˙  
  <p align="center">
